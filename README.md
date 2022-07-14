@@ -1,0 +1,2 @@
+# osro
+mavitikistiyorum
